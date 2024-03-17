@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Miezutz
+- 👀 I’m interested in Memes
+- 🌱 I’m currently learning how to make you to smile.
+- 📫 How to reach me miezutz@gmail.com
+- ⚡ Fun fact: We have the best cult ever! "The Goat"
